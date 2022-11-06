@@ -1,4 +1,4 @@
-En développement.
+EN DÉVELOPPEMENT.
 
 Ceci fait partie du "délire" Listenbourg ! 🇲🇨
 
