@@ -1,4 +1,4 @@
-➡️ https://scp-listenbourg.github.io ⬅️
+➡️ https://scp-listenbourg.github.io
 
 Ceci fait partie du "délire" Listenbourg ! 🇲🇨
 
