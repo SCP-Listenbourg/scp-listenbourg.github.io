@@ -1,6 +1,6 @@
 ➡️ https://scp-listenbourg.github.io
 
-Ceci fait partie du "délire" Listenbourg ! 🇲🇨
+Ceci fait partie du "délire" Listenbourg ! 🇮🇩
 
 Rien d'officiel, étant donné que la Fondation SCP et le Listenbourg n'existent pas réellement.
 
